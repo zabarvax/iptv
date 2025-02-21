@@ -1,3 +1,8 @@
+## <a href="https://kaliteiptvtr5.com/">IPTV SATIN ALMAK İÇİN TIKLA</a>
+<a href="https://kaliteiptvtr5.com/">
+    <img src="http://hizliresims.com/kaliteiptvlogo.png" alt="beinsports" style="max-width: 100%; border: 2px solid #ddd; margin-top: 15px;">
+</a>
+
 # IPTV ile Kesintisiz TV Deneyimi | En İyi IPTV Servisleri
 
 IPTV ile canlı TV, spor, film ve dizileri kesintisiz izleyin. En iyi IPTV servislerini keşfedin ve yüksek kaliteli yayın deneyimi yaşayın.
